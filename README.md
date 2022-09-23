@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi there 🙌🏼, I'm Jake!
+
+- 🤙🏼 Feel free to add me on discord: JAKENRTH#5899
 
 <!--
 **JAKENRTH/JAKENRTH** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
