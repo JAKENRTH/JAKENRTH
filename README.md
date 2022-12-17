@@ -1,4 +1,4 @@
-### Hi there 🦎, I'm Jake!
+### Hi there 📼, I'm Jake!
 
 - 🦀 Rust
 - 🤙🏼 Feel free to contact me on discord: JAKENRTH#5899
