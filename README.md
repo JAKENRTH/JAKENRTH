@@ -1,7 +1,7 @@
 ### Hi there 📼, I'm Jake!
 
 - 🦀 Rust
-- 🤙🏼 Feel free to contact me on discord: JAKENRTH#5899
+- 🤙🏼 Feel free to contact me on discord: jake™#4380
 
 <!--
 **JAKENRTH/JAKENRTH** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
